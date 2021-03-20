@@ -1,0 +1,14 @@
+{
+    "name": "recipe-generator",
+    "version": "1.0",
+    "description": "Noah's Markdown to HTML via Pug tool",
+    "license": "MIT",
+    "private": true,
+    "author": {
+        "name": "Noah Santer",
+        "email": "n.ed.santer@gmail.com"
+    },
+    "dependencies": {
+        "pug": "~3.0.2"
+    }
+}
