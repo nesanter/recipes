@@ -8,13 +8,13 @@
  - 1/2 tsp salt
  - 1 tsp ginger or clove
  - 1 tsp cinnamon
- - 1/2 tsp butter, softened
+ - 1/2 cup butter, softened
  - 3/4 cup molasses
  - 1 egg
  - 1 cup boiling water
 
 ## Instructions
- 1. Prehead oven to 350.
+ 1. Preheat oven to 350.
  2. Combine dry ingredients. Sift.
  3. Add butter, molasses, and then egg.
  4. Beat together.
