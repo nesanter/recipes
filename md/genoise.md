@@ -6,8 +6,8 @@
  - 1 stick unsalted butter
  - 8 eggs
  - 1 cup sugar
- - 1 1/2 cups cake flour, plus 2 tbsp
- - 1/4 tsp table salt
+ - 1½ cup cake flour, plus 2 tbsp
+ - ¼ tsp table salt
  - 1 tbsp vanilla extract
 
 ## Instructions
