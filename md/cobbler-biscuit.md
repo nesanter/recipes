@@ -19,5 +19,5 @@
  5. Add ½ cup milk. Mix. Add vinegar.
  6. Add remaining milk and mix until sticky.
  7. Transfer and flour to baking sheet.
- 7. Bake about 16 minutes until browned.
+ 7. Bake for 20 minutes and then in increments until browned.
 
