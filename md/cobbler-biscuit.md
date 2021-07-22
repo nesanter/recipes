@@ -18,6 +18,6 @@
  4. Add egg yolks. Mix.
  5. Add ½ cup milk. Mix. Add vinegar.
  6. Add remaining milk and mix until sticky.
- 7. Transfer and flour to baking sheet.
+ 7. Transfer to baking sheet. Spread surface with knife.
  7. Bake for 20 minutes and then in increments until browned.
 
