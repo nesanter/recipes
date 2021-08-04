@@ -1,7 +1,7 @@
 # Dutch Baby
 
 ## Ingredients
- - 6 tbsp butter
+ - 4 tbsp butter
  - 3 eggs
  - ½ cup flour
  - ½ cup milk (or ¼ cup half-and-hand plus ¼ cup milk)
