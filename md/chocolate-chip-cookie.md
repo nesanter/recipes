@@ -6,18 +6,19 @@ Makes ??? cookies.
 
 ## Ingredients
  - 8 oz (2 stick) butter
- - 2 eggs
+ - 2 eggs (separated)
  - 5 oz sugar, white granulated
+ - 2 tsp vanilla
  - 5 oz sugar, brown
  - 10 oz flour
  - 1 tsp salt, kosher (plus garnish)
- - 2 tsp vanilla
+ - ¾ tsp baking soda
  - 8 oz chocolate
 
 ## Instructions
 
  1. Brown butter. Transfer to dish and cool near room temperature by adding ice.
- 2. Seperate yolks from white and set aside.
+ 2. Separate yolks from white and set aside.
  3. Combine white sugar, egg whites, and vanilla in mixing bowl. Beat thoroughly.
  4. Add yolks and beat moderately.
  5. Add butter and brown sugar. Beat gently to retain brown sugar granules.
