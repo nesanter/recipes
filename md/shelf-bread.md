@@ -8,7 +8,7 @@
  - 1 tbsp sugar
  - 3½ cup high-protein (bread) flour (600g)
  - 1 tbsp salt
- - 2.5g soy lecithin (0.5% weight of flour)
+ - 3g soy lecithin (0.5% weight of flour)
  - Olive oil
 
 ## Instructions
