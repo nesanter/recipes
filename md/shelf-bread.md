@@ -3,11 +3,11 @@
 # Shelf Bread
 
 ## Ingredients
- - 2¼ cup warm water
- - 2¼ tsp active dry yeast
- - 1 tbsp sugar
+ - 2¼ to 2½ cup warm water (~550g)
+ - 2¼ tsp active dry yeast (7g)
+ - 1 tbsp sugar (14g)
  - 3½ cup high-protein (bread) flour (600g)
- - 1 tbsp salt
+ - 1 tbsp salt (18g)
  - 3g soy lecithin (0.5% weight of flour)
  - Olive oil
 
