@@ -12,8 +12,8 @@
  - 2 eggs
 
 ### Filling
- - Butter, cut into small cubes
- - Brown sugar
+ - Butter, cut into small cubes (~3 tbsp)
+ - Brown sugar (~⅓ cup)
  - Cinnamon
 
 ### Glaze
