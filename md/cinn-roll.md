@@ -25,7 +25,7 @@
 
  - Warm milk. Dissolve in yeast and sugar.
  - In mixing bowl, combine flour and salt.
- - Using hook attachment, add milk mixture then melted butter then eggs. Form dough.
+ - Using paddle attachment, add milk mixture then melted butter then eggs. Form dough.
  - Knead until smooth.
  - Rise for 1 hour.
  - Roll out to a rectangular shape. Cover with filling. Begin rolling, adding filling onto interior side. Cut gently into 1" tall rounds. Place with space in nonstick bowl, fold side to edge.
