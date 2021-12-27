@@ -23,13 +23,13 @@
 
 ## Instructions
 
- - Warm milk. Dissolve in yeast and sugar.
- - In mixing bowl, combine flour and salt.
- - Using paddle attachment, add milk mixture then melted butter then eggs. Form dough.
- - Knead until smooth.
- - Rise for 1 hour.
- - Roll out to a rectangular shape. Cover with filling. Begin rolling, adding filling onto interior side. Cut gently into 1" tall rounds. Place with space in nonstick bowl, fold side to edge.
- - Rise for ½ hour.
- - Bake at 400°F for 15 minutes.
- - Drizzle glaze.
+ 1. Warm milk. Dissolve in yeast and sugar.
+ 2. In mixing bowl, combine flour and salt.
+ 3. Using paddle attachment, add milk mixture then melted butter then eggs. Form dough.
+ 4. Knead until smooth.
+ 5. Rise for 1 hour.
+ 6. Roll out to a rectangular shape. Cover with filling. Begin rolling, adding filling onto interior side. Cut gently into 1" tall rounds. Place with space in nonstick bowl, fold side to edge.
+ 7. Rise for ½ hour.
+ 8. Bake at 400°F for 15 minutes. (Note: cinnamon-less rolls bake 25-30 minutes.)
+ 9. Drizzle glaze.
 
