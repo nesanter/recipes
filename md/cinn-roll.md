@@ -23,7 +23,7 @@
 
 ## Instructions
 
- 1. Warm milk. Dissolve in yeast and sugar.
+ 1. Warm milk. Dissolve in yeast and sugar. Melt butter.
  2. In mixing bowl, combine flour and salt.
  3. Using paddle attachment, add milk mixture then melted butter then eggs. Form dough.
  4. Knead until smooth.
