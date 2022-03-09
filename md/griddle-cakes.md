@@ -9,8 +9,8 @@
  - 1 tsp baking soda
  - 1 tsp baking powder
  - 2 eggs
-## Instructions
 
+## Instructions
  1. Make buttermilk. Start heating griddle.
  2. Melt butter.
  3. Put salt in butter.

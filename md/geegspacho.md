@@ -1,4 +1,4 @@
-# Cold Tomato pseudo-Gazpacho
+# Cold Tomato pseudo-Gazpacho (Geegspacho)
 
 ## Ingredients
  - 1 heirloom tomato
