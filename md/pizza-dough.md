@@ -4,9 +4,9 @@
 
 ## Ingredients
  - 3 cup bread flour
- - 2¼ tsp yeast
+ - 2¼ tsp yeast (1 tbsp)
  - 1 tsp salt
- - 1½ tsp honey
+ - 1½ tsp honey (1 tbsp)
  - 1¼ cup warm water
  - 1 tbsp olive oil
 
