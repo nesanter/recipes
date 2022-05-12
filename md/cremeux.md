@@ -1,6 +1,6 @@
 *Adapted from https://wheelofbaking.com/how-to-make-chocolate-cremeux/* 
 
-# Chocolate crémeux
+# Chocolate cr&eacute;meux
 
 ## Ingredients
  - 105 g whole milk
