@@ -9,6 +9,7 @@
         "email": "n.ed.santer@gmail.com"
     },
     "dependencies": {
-        "pug": "~3.0.2"
+        "pug": "~3.0.2",
+        "pug-cli": "^1.0.0-alpha6"
     }
 }

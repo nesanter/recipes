@@ -10,5 +10,7 @@
 
 ## Instructions
 
-Bake at 400°F for 22 minutes.
+Combine and form. Chill 30 minutes. Letter book book. Chill 10 mins. Book. Chill 30 minutes.
+
+Bake at 400°F for 22 minutes (note: probably longer).
 
