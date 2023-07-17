@@ -35,7 +35,7 @@
 ### Dough
 
  - Combine dry ingredients.
- - Melt butter in sauce pan over low heat. Add milk and yorgurt, stirring to combine.
+ - Melt butter in sauce pan over low heat. Add milk and yogurt, stirring to combine.
  - Add to flour and stir to make shaggy dough. Knead with stand mixer 10 minutes. Knead by hand 10 minutes.
  - Rise 90 to 105 minutes.
  - Roll into 13" square. Apply filling. Roll into log. Cut into 10 to 12 pieces. Put in two round pans.
