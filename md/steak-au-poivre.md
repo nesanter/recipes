@@ -41,7 +41,7 @@
  4. While vegetables are roasting, bring dutch oven to boil and skim routinely.
  5. Drain fat from roasting tray and add vegetables to dutch oven. Deglaze roasting tray with some water and add liquid to dutch oven.
  6. Top off water in dutch oven. Simmer hard, covered, for 3 to 6 hours until heavily reduced.
- 7. Strain with mesh strainer, pressing to extract all the reduced broth. Chill until next day if needed.
+ 7. Strain with mesh strainer, pressing to extract all the reduced broth. Make sure to get marrow from bones! Chill until next day if needed.
 
 ### Prepare filets
 

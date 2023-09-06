@@ -29,13 +29,6 @@
  - Large container shredded full-fat mozzarella
  - Romano
 
- - 3 cup bread flour
- - 2¼ tsp yeast (1 tbsp)
- - 1 tsp salt
- - 1½ tsp honey (1 tbsp)
- - 1¼ cup warm water
- - 1 tbsp olive oil
-
 ## Instructions
 
  1. Preheat oven to maximum (525°F) including pizza steel.
@@ -45,5 +38,5 @@
  5. Oil one side of two different rectangles of parchment paper. Place one dough ball between. Flatten gently with hands and then roll into a large, thin round.
  6. Repeat with other dough ball. Set aside to proof while still in parchment for 40 minutes.
  7. While dough proofs, combine sauce ingredients and immersion blend until herbs are smooth.
- 8. Assemble pizzas and bake each for about 7 minutes on their bottom sheet of parchment.
+ 8. Assemble pizzas and bake each for about 7-8 minutes on their bottom sheet of parchment.
 
