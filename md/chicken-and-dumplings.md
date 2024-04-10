@@ -2,6 +2,22 @@
 
 ## Ingredients
 
+### Mirepoix
+
+ - 4 tbsp butter
+ - 1 large, or 2 medium, sweet onions, roughly chopped
+ - 4 to 6 stalks of celery, cleaned and chopped
+ - 6 cloves of garlic
+ - 2 to 4 dried chilis arbol
+ - black pepper
+ - salt
+
+### Soup
+
+ - 4 to 8 small white potatos, chopped as desired
+ - rosemary, thyme, marjoram, and sage
+ - whole chicken
+
 ### Dumplings
 
  - 1⅓ cup flour
