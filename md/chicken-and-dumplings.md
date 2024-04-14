@@ -1,5 +1,8 @@
 # Chicken and Dumplings Soup
 
+About 2½ hours from start to finish, depending on your efficiency, with about
+45 minutes to 1 hour of free time while things cook, split over two parts.
+
 ## Ingredients
 
 ### Mirepoix
