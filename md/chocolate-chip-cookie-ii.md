@@ -7,7 +7,7 @@
  - 6¼ oz flour
  - 5 oz butter
  - 4 oz brown sugar
- - 3⅝ oz white sugar
+ - 3⅝ (3.62) oz white sugar
  - 1 tsp kosher salt
  - ½ tsp baking soda
  - ¼ tsp baking powder
