@@ -11,6 +11,7 @@
 
 ## Instructions
 
+ - 7 minute knead with dough hook
  - 2 hour rise in oven with light on, in plastic-wrapped bowl.
  - 45 minute proof on baking tray with parchment, covered in dampened towel
  - 25 minute bake at 450°F with steam

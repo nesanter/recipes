@@ -5,7 +5,7 @@
 ## Ingredients
  - 2 cup milk
  - ¼ cup butter
- - ⅓ cup sugar
+ - 1 cup sugar
  - pinch salt
  - ½ tsp vanilla
  - 2 eggs
