@@ -16,4 +16,4 @@
  3. Cook yolk mixture above pot, careful so that the bowl does not touch the
     water for 3 minutes, whisking constantly. Add Marsala and keep whisking
     until done, about another 2-3 minutes. Mixture should be firm but not set,
-    airy, and live a ribbon when dropped.
+    airy, and leave a ribbon when dropped.
