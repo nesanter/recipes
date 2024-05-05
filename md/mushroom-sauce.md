@@ -11,6 +11,7 @@
  - ketchup to taste
  - ~¼ tsp garlic-habanero hot sauce
  - ~½ tsp garlic powder
+ - duck mousse
  - salt to taste
 
 ## Instructions
@@ -22,7 +23,8 @@ rehydrate, about ten minutes. Remove morels and set aside.
  - Reduce mushroom water to about 2-3 tbsp. Chop morels and add back in. Blend
    with immersion blender.
 
- - Add remaining ingredients, tasting to adjust as necessary. Blend again.
+ - Add remaining ingredients, stirring especially the mouse in well, tasting to
+   adjust as necessary. Blend again.
 
  - If using as a rib sauce, add the juices from the slow cook of the ribs to
    the sauce and blend again before lacquering.
