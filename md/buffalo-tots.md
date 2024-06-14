@@ -15,11 +15,10 @@
 
 ## Instructions
 
- 1. Bake tots for 30 mins at temp on bag
+ 1. Preheat oven to 450°F. Put tots on a sheet tray. Bake for 35 minutes.
 
- 2. Heat franks and worch with butter in it until butter is just melted.
+ 2. Add buffalo sauce, garlic powder, and mexican cheese. Bake for 10 to 15
+    minutes.
 
- 3. Add garlic powder and cheese and sauce to tots. Bake another 10 minutes.
-
- 4. Cut up and crumble blue cheese and add to tots. Bake a final 5 minutes, or
-    until cheese melts
+ 3. Cut up and crumble feta cheese. Bake an additional 3 to 5 minutes until
+    cheese is melted.
