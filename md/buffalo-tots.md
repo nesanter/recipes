@@ -1,13 +1,13 @@
 # Buffalo Tots
 
 ## Ingredients
- - Small bottle of Frank's RedHot
+ - 5.5oz / small bottle of Frank's RedHot
  - Half a stick of butter
  - splash or two of worchestershire
 
- - Bag of tots
- - Bag of 4 cheese mex
- - Wedge of original blue
+ - 2lb bag of tots
+ - ½ bag of 4 cheese mex
+ - Wedge of point reyes original blue
  - garlic powder
 
  - some cilantro
@@ -20,4 +20,5 @@
  2. Add buffalo sauce, garlic powder, and mexican cheese. Bake for 10 to 15
     minutes.
 
- 3. Cut up and crumble feta cheese. Bake an additional 3 to 4 minutes.
+ 3. Cut up and crumble feta cheese. Bake an additional 3 to 5 minutes until
+    cheese is melted.
