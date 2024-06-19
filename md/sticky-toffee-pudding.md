@@ -20,11 +20,20 @@
 ## Instructions
 
  1. Preheat oven to 350°.
+
  2. Coarsely chop dates. Add boiling water. Add baking soda. Stir. Cool.
+
  3. Once cooled, blend date mixture with immersion blender until chunky.
- 4. Cream brown sugar and butter. Beat in eggs and oil. Add in treacle and vanilla and combine.
+
+ 4. Cream brown sugar and butter. Beat in eggs and oil. Add in treacle and
+    vanilla and combine.
+
  5. Stir together flour, baking powder, and salt.
- 6. Add flour mixture to wet mixture. Stir together until just combined. Add date mixture. Stir
-together again until just combined.
+
+ 6. Add flour mixture to wet mixture. Stir together until just combined. Add
+    date mixture. Stir together again until just combined.
+
  7. Transfer to tin and bake for 25 minutes.
+
  8. Serve with toffee sauce.
+

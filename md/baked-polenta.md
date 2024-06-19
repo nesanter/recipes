@@ -28,7 +28,7 @@
     occasionally.
 
  3. Stir in butter then parmesan. Move to baking dish, top with more parmesan,
-    and bake in400°F oven for 25 minutes.
+    and bake in 400°F oven for 25 minutes.
 
  4. Chill until set.
 

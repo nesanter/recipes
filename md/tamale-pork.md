@@ -3,8 +3,7 @@
 ## Ingredients
 
  1. 5lb pork shoulder
- 2. salt
- 3. olive oil
+ 3. salt and olive oil
  4. 4 ancho chiles
  5. 2 guajillo chiles
  6. 1 medium sweet onion
@@ -23,9 +22,9 @@ twenty to thirty minutes until softened, and then blend e.g. with an immersion
 blender, or alternatively chop with kitchen scissors.
 
  2. Dry pork and rub with salt generously. Let sit at room temperature for
-    about 15 minutes.
+    about 15 minutes. After it has sat, pat it down again to tthoroughly dry.
 
- 3. Heat olive oil and brown each side of the pork, about 4 minutes at
+ 3. Heat olive oil and brown the large sides of the pork, about 4 minutes at
     medium-high heat per side.
 
  4. While meat browns, dice onion and mince garlic. In the same pan as the meat
