@@ -15,6 +15,7 @@
  - dry marsala
  - dry basil, oregano, black pepper
  - salt
+ - parmesan rind (optional)
 
 ## Instructions
 
@@ -29,8 +30,8 @@
     meat juices if meat was seared in separate pan or sheet. Cook gently until
     paste is somewhat colored.
 
- 3. Add shank and other meats. Add about two cups of water. Bake for 4-5 hours,
-    monitoring liquid levels.
+ 3. Add shank and other meats. Add about two cups of water. Optionally, toss
+    in a parmesan rind. Bake for 4-5 hours, monitoring liquid levels.
 
  4. Take out shank and remove fat and bone. Remove excess liquid fat from sauce
     if desired. Shred the beef and the tomatoes with a spatula. Return lamb,
