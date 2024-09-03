@@ -25,10 +25,19 @@
 
 ## Instructions
 
- 1. Combine dough ingredients in stand mixer bowl. Mix with a dough hook for six minutes.
+ 1. Combine dough ingredients in stand mixer bowl. Mix with a dough hook for
+    six minutes.
+
  2. Rise for 60 minutes.
- 4. While rising, make garlic butter by combining butter ingredients in small sauce pan and cooking until garlic has softened. Cool.
+
+ 4. While rising, make garlic butter by combining butter ingredients in small
+    sauce pan and cooking until garlic has softened. Cool.
+
  3. Flip out dough and degas. Cut into twelve pieces. Knot each piece.
- 4. Toss dough pieces with garlic butter, reserving some. Place in greased 8x8 metal pan. Sprinkle with cheese.
+
+ 4. Toss dough pieces with garlic butter, reserving some.
+    Place in greased 8x8 metal pan. Sprinkle with cheese.
+
  5. Proof for 20 to 30 minutes while heating oven to 450°F.
+
  6. Bake for 12 to 15 minutes. Brush top with reserved garlic butter.
