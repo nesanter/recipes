@@ -34,7 +34,8 @@ About 1½ hours from start to finish, depending on your efficiency, with about
 
 ### Base Broth
 
- 1. Melt butter. Cook chilies and black pepper with salt briefly.
+ 1. Melt butter. Cook chilies and black pepper with a small pinch of salt,
+    briefly.
 
  1. Add onions and cook until browning.
 
