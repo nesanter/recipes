@@ -41,12 +41,12 @@
 
  4. Divide and cover with a damp towel for 15 minutes.
 
- 5. Oil one side of two different rectangles of parchment paper.
-    Place one dough ball between.
-    Flatten gently with hands and then roll into a large, thin round.
+ 5. Oil one side of two different rectangles of parchment paper. Place one
+    dough ball between. Flatten gently with hands and then roll into a large,
+    thin round.
 
- 6. Repeat with other dough ball.
-    Set aside to proof while still in parchmentfor 40 minutes.
+ 6. Repeat with other dough ball. Set aside to proof while still in
+    parchmentfor 40 minutes.
 
  7. While dough proofs, combine sauce ingredients and immersion blend until
     herbs are smooth.

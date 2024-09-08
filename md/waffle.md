@@ -13,7 +13,13 @@
 
 ## Instructions
 
- 1. Combine dry ingredients. Melt butter and warm milk. Combine dry mix, eggs, butter, and milk. Whisk until smooth.
+ 1. Combine dry ingredients. Melt butter and warm milk. Combine dry mix, eggs,
+    butter, and milk. Whisk until smooth.
+
  2. Rise for two hours.
+
  3. Refrigerate overnight.
- 4. Pre-heat waffle maker. Cook waffles for 150 seconds per side (for new maker) or 8 minutes (for old maker.)
+
+ 4. Pre-heat waffle maker. Cook waffles for 150 seconds per side (for new
+    maker) or 8 minutes (for old maker.)
+
