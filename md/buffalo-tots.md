@@ -2,7 +2,7 @@
 
 ## Ingredients
  - 5.5oz / small bottle of Frank's RedHot
- - Half a stick of butter
+ - a stick of butter
  - splash or two of worchestershire
 
  - 2lb bag of tots
