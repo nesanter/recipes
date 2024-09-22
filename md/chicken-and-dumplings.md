@@ -8,6 +8,7 @@ About 1½ hours from start to finish, depending on your efficiency, with about
 ### Mirepoix
 
  - 4 tbsp butter
+ - 2 tbsp douchi
  - 1 large, or 2 medium, sweet onions, roughly chopped
  - 4 to 6 stalks of celery, cleaned and chopped
  - 6 cloves of garlic
@@ -20,13 +21,14 @@ About 1½ hours from start to finish, depending on your efficiency, with about
 ### Soup
 
  - fresh herbs (e.g. rosemary and sage), chopped
+ - 1 tsp kurozu (Japanese black vinegar)
  - whole chicken
 
 ### Dumplings
 
  - 1⅓ cup flour
  - 2 tsp baking powder
- - ¾ tsp salt
+ - 1 tsp salt
  - ⅔ cup milk
  - 2 tbsp butter, melted
 
@@ -35,6 +37,7 @@ About 1½ hours from start to finish, depending on your efficiency, with about
 ### Base Broth
 
  1. Melt butter. Cook chilies and black pepper with a small pinch of salt,
+    briefly. Run your knife over the douchi a few times and add them and cook
     briefly.
 
  1. Add onions and cook until browning.
@@ -51,7 +54,7 @@ About 1½ hours from start to finish, depending on your efficiency, with about
 
 ### Chicken
 
- 1. Preheat oven to 425°F.
+ 1. Preheat oven to 450°F to 500°F.
 
  2. Spatchcock chicken, place on rack, and pat dry. Salt.
 
@@ -76,4 +79,6 @@ About 1½ hours from start to finish, depending on your efficiency, with about
  3. Let rest 5 - 10 minutes.
 
  4. Place dumplings in simmering pot and let cook, covered, for 20 minutes.
+
+ 5. Finish with the kurozu and any additional salt to taste.
 
