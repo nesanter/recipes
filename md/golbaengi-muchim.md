@@ -35,7 +35,7 @@
  2. Combine minced garlic, microplaned ginger, gochu-garu, vinegar, gochujang,
     honey, salt, and soy sauce in a bowl. Stir to mix.
 
- 3. Prep pear, cucumber, and whelks, reserving ⅓  cup of whelk brine from the
+ 3. Prep pear, cucumber, and whelks, reserving ⅓ cup of whelk brine from the
     can for the sauce.
 
  4. Boil water and cook noodles for 3 minutes. Strain and rinse with cold
