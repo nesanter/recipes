@@ -17,6 +17,7 @@ which calls for 1lb of cooked char siu.
  - 10g salt
  - 12g garlic powder
  - 1.5g five spice powder
+ - 3 tbsp Shaoxing wine
 
 ## Instructions
 

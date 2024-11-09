@@ -17,7 +17,7 @@ Makes 16 bao.
  - 6g yeast
  - 100g sugar
  - 9 oz water
- - 2 tbsp vegetable oil
+ - 1 oz (2 tbsp) vegetable oil
 
 ### Filling
 
