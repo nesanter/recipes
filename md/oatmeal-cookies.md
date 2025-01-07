@@ -12,6 +12,7 @@ Makes about ten cookies.
  - ½ tsp kosher salt
  - ½ tsp cinnamon
  - ½ cup butter, melted
+ - ¾ cup packed brown sugar
  - 1 egg
  - 1 egg yolk
  - 1½ cup rolled oats
