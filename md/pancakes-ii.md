@@ -1,4 +1,4 @@
-*Adapted from https://www.brianlagerstrom.com/recipes/the-greatest-pancake?rq=pancake*
+*Adapted from https://www.brianlagerstrom.com/recipes/the-greatest-pancake*
 
 # Pancakes II
 
@@ -28,5 +28,5 @@
 
  5. Stir until just combined and lumpy
 
- 6. Cook in ½ cup scoups on 350°F pan (range set to low) for 2-3 minutes per
+ 6. Cook in ½ cup scoops on 350°F pan (range set to low) for 2-3 minutes per
     side. Use pan spray between pancakes.
