@@ -27,9 +27,11 @@
 
  4. Add herbs. Cook briefly.
 
- 5. Add worchestershire, vermouth, and flour. Mix to combine. Add water.
+ 5. Pat skirt dry. Cut up and add.
 
- 6. Bring to a simmer, then bake at 325° for 90 minutes.
+ 6. Add worchestershire, vermouth, and flour. Mix to combine. Add water.
 
- 7. Let cool somewhat and mix in sour cream. Serve with egg noodles, letting
+ 7. Bring to a simmer, then bake at 325° for 90 minutes.
+
+ 8. Let cool somewhat and mix in sour cream. Serve with egg noodles, letting
     them finish cooking by absorbing a bit of the sauce.
