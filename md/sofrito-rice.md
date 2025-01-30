@@ -22,8 +22,8 @@
 
  1. Preheat oven to 350°F.
 
- 2. Rough chop onion, poblano, garlic, cilantro. Food proccess until small and
-    coarse.
+ 2. Rough chop onion, poblano, garlic, cilantro. Add salt and cumin. Food
+    proccess until small and coarse.
 
  3. Rinse rice. Heat dutch oven over medium and add olive oil. Fry rice to
     toast.
