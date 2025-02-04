@@ -4,16 +4,18 @@
 
 ## Ingredients
 
- - 1 big can whole tomatos
+ - 1 28 oz can whole tomatoes
  - ½ medium onion
  - 2 tbsp tomato paste
  - worchestershire sauce, dried basil, garlic powder, black pepper, balsamic vinegar, msg, salt, sugar
 
  - 1 box jumbo shells
+
  - 1lb ricotta
  - 8 oz shredded mozzarella
  - ~3 tbsp parmesan
  - 1 egg
+ - pinch of salt
 
  - top with a bit more mozzarella, parm, and romano
 
