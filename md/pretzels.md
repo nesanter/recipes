@@ -4,9 +4,9 @@
 
 ## Ingredients
 
- - 300g flour
- - 6g salt
- - 1 tsp sugar
+ - 300g flour (plus some more usually)
+ - 9g salt
+ - 5g sugar
  - 7g yeast
  - 1 cup warm water
 
@@ -21,15 +21,15 @@
     with a bit of flour if sticky and rise covered in a greased bowl for 30
     minutes.
 
- 2. Preheat oven to 475°F. Line a baking sheet with foil.
+ 2. Preheat oven to 475°F. Line a baking sheet with foil and grease.
 
  3. Divide risen dough into eight pieces. Let the pieces rest for 5 minutes
     while you boil the 1 cup of water and combine it with baking soda. Let it
     cool.
 
- 4. Shape pieces and put each in the water bath for 2 minutes, spooning water
-    on top.
+ 4. Grease your work surface. Shape pieces and put each in the water bath for 2
+    minutes (in groups of four), spooning water on top.
 
- 5. Sprinkle with salt. Rest uncovered for 10 minutes.
+ 5. Sprinkle with salt. Rest uncovered on the prepared tray for 10 minutes.
 
  6. Bake for 8 to 9 minutes until golden brown. Brush with melted butter.
