@@ -44,6 +44,7 @@
     adding more stock if needed until it is thick and gel-y.
 
  7. Put between two pie crusts (no need to blind bake) and apply an egg wash
-    to the top. Vent. Bake at 350°F for 40 minutes to an hour.
+    to the top. Vent. Bake on a sheet tray (seriously) at 350°F for 40 minutes
+    to an hour.
 
  8. Let sit at least one hour to set.
