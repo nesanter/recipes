@@ -6,18 +6,17 @@
 
  - 1 28 oz can whole tomatoes
  - ½ medium onion
- - 2 tbsp tomato paste
- - worchestershire sauce, dried basil, garlic powder, black pepper, balsamic vinegar, msg, salt, sugar
+ - worchestershire sauce, dried basil, garlic powder, black pepper, msg, salt, sugar
 
  - 1 box jumbo shells
 
  - 1lb ricotta
  - 8 oz shredded mozzarella
- - ~3 tbsp parmesan
+ - ~3 tbsp parmesan and romano
  - 1 egg
- - pinch of salt
+ - pinch of salt, crack of pepper
 
- - top with a bit more mozzarella, parm, and romano
+ - top with a bit more mozzarella, parm, and romano, and sauce
 
 ## Instructions
 
@@ -29,7 +28,7 @@
  3. Put some sauce on the bottom of the pan
 
  4. Mix up the filling in a bag, cut a corner, pipe it into the shells.
-    Arrange them in the pan. Cover with foil.
+    Arrange them in the pan. Top with more cheese and suace. Cover with foil.
 
  5. Bake for 35 minutes. Up temperature to 450°F. Bake for 15 more.
 
