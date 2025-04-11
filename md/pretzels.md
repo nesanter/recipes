@@ -2,6 +2,8 @@
 
 # Hot Buttered Pretzels
 
+Usually we make a double batch.
+
 ## Ingredients
 
  - 300g flour (plus some more usually)
