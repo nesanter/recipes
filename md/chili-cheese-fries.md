@@ -40,4 +40,4 @@
  5. A few minutes before fries come out, mix evap milk and cheese and heat
     until thickened. Combine with chili in pan, folding together.
 
- 6. Serve on friest with a dollop of sour cream.
+ 6. Serve on fries with a dollop of sour cream.
