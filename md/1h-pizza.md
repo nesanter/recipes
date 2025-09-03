@@ -46,7 +46,7 @@
     thin round.
 
  6. Repeat with other dough ball. Set aside to proof while still in
-    parchmentfor 40 minutes.
+    parchment for 40 minutes.
 
  7. While dough proofs, combine sauce ingredients and immersion blend until
     herbs are smooth.

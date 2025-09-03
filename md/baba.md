@@ -34,7 +34,8 @@
 
  3. Make filling and chop scallions.
 
- 4. Preheat oven to 300°F.
+ 4. If the dough is in the oven, remove it. OR ELSE. Preheat oven to 300°F.
+    (You removed it, right?)
 
  5. Divide into 4 pieces. Roll each piece out into an oval and put filling
     on it, avoiding about 1" around each side. Top with scallions. Roll it up,

@@ -1,5 +1,7 @@
 # Chili Cheese Fries
 
+Priced out at $18.25 with sour cream ($1.99) and fries ($4.49) left over
+
 ## Ingredients
 
 ### Chili

@@ -1,5 +1,7 @@
 # Buffalo Tots
 
+Priced at $19.67, consuming only 2lb of the 5lb bag of tots ($3.60 of $8.99)
+
 ## Ingredients
  - 5.5oz / small bottle of Frank's RedHot
  - a stick of butter
