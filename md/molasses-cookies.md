@@ -1,25 +1,30 @@
-*Adapted from https://melissaknorris.com/old-fashioned-molasses-cookie-just-like-great-grandmas/*
-
-# Molasses Cookies
+# Chewy Molasses Crinkles
 
 ## Ingredients
 
- - ¾ cup butter
- - 1 cup sugar
- - ¼ cup molasses
- - 1 egg
+ - 1 stick butter, room temperature
+ - 1 packed cup light brown sugar
+ - ½ cup sugar
+ - 2 eggs
+ - ½ cup molasses
+ - 2 tbsp vegetable il
  - 2 cups flour
- - 2 tsp baking soda
+ - 1 tsp bakind soda
+ - 1 tsp cinnamon
+ - 1 tsp ginger
+ - 1 tsp allspice
  - ½ tsp salt
- - spices (cinnamon, nutmeg, etc.)
 
 ## Instructions
 
- 1. Preheat oven to 375°F.
+ 1. Paddle butter, brown sugar, and sugar until smooth. Mix in eggs one at a
+    time followed by molasses and oil.
 
- 1. Mix dry.
+ 2. On low speed, gradually mix in flour, baking soda, cinnamon, ginger,
+    allspice, and salt. Cover dough with plastic wrap and refrigerate 1 hour or
+    overnight.
 
- 2. Cream butter and sugar. Beat in molasses and egg. Add dry and mix until
-    just combined. Chill for 40 minutes.
+ 3. Preheat oven to 325°F. Form balls of dough and roll in granulated sugar.
+    Space 3" apart on baking sheet lined with parchment paper. Bake, rotating
+    sheets halfway through, for about 17 minutes.
 
- 3. Form into balls. Bake for 11 minutes.
