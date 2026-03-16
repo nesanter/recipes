@@ -11,7 +11,7 @@
  - 130g sugar
  - 2 eggs
  - 1 tsp vanilla
- - 3 tbsp dark rum or brandy
+ - 1 tbsp brandy
  - 2 medium apples
 
 ## Instructions
@@ -20,7 +20,7 @@
 
  2. Cut up apples. Set aside. Mix dry.
 
- 3. Cream butter and sugar. Add eggs one at time. Beat in vanilla and rum (or
-    brandy.) Add flour mixture. Fold in apples.
+ 3. Cream butter and sugar. Add eggs one at time. Beat in vanilla and brandy.
+    Add flour mixture. Fold in apples.
 
  4. Scrape into pan. Bake 40 minutes or until done.
