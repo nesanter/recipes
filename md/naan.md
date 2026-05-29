@@ -1,3 +1,5 @@
+*Adapted from https://www.kingarthurbaking.com/recipes/naan-recipe*
+
 # Naan
 
 ## Ingredients
