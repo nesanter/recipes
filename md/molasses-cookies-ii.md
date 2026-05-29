@@ -15,11 +15,11 @@
 
 ## Instructions
 
- 1. Preheat oven to 375°F.
-
  1. Mix dry.
 
  2. Cream butter and sugar. Beat in molasses and egg. Add dry and mix until
     just combined. Chill for 40 minutes.
 
- 3. Form into balls. Bake for 11 minutes.
+ 3. Preheat oven to 375°F.
+
+ 4. Form into balls. Bake for 11 minutes.

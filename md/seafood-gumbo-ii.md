@@ -21,9 +21,9 @@ makes a thicker dark stew for serving over rice.
 
 ### Seafood
 
- - shrimp
- - mussels
- - bay scallops
+ - ½lb shrimp
+ - 1lb mussels, shell on
+ - ¼ to ½lb bay scallops
 
 ## Instructions
 
