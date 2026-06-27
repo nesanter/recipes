@@ -2,20 +2,20 @@
 
 # Hot Buttered Pretzels
 
-Usually we make a double batch.
+This is a double batch (16 pretzels)
 
 ## Ingredients
 
- - 300g flour (plus some more usually)
- - 9g salt
- - 5g sugar
- - 7g yeast
- - 1 cup warm water
+ - 600g flour (plus some more usually)
+ - 18g salt
+ - 10g sugar
+ - 14g yeast
+ - 2 cup warm water
 
- - 1 cup boiling water
- - 2 tbsp baking soda
+ - 2 cup boiling water
+ - 4 tbsp baking soda
 
- - 3 tbsp butter, melted
+ - 6 tbsp butter, melted
 
 ## Instructions
 
@@ -25,8 +25,8 @@ Usually we make a double batch.
 
  2. Preheat oven to 475°F. Line a baking sheet with foil and grease.
 
- 3. Divide risen dough into eight pieces. Let the pieces rest for 5 minutes
-    while you boil the 1 cup of water and combine it with baking soda. Let it
+ 3. Divide risen dough into sixteen pieces. Let the pieces rest for 5 minutes
+    while you boil the 2 cups of water and combine it with baking soda. Let it
     cool.
 
  4. Grease your work surface. Shape pieces and put each in the water bath for 2
