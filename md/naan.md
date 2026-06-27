@@ -2,16 +2,18 @@
 
 # Naan
 
+*This is a double batch; it makes 12 naan.*
+
 ## Ingredients
 
- - 270g flour
- - 12g yeast
- - 1 tsp salt
- - 1 tsp sugar
+ - 540g flour
+ - 24g yeast
+ - 2 tsp salt
+ - 2 tsp sugar
  - handful of fenugreek leaves
- - 2 tbsp melted butter plus more for brushing
- - 70g yogurt
- - 140g warm water
+ - 4 tbsp melted butter plus more for brushing
+ - 140g yogurt
+ - 280g warm water
 
 ## Instructions
 
