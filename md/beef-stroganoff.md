@@ -23,8 +23,8 @@
 
  1. Salt both sides of the skirt
 
- 2. Cook onions in butter with black pepper, salt, and cayenne, until softened,
-    about 5 minutes
+ 2. In a dutch oven, cook onions in butter with black pepper, salt, and
+    cayenne, until softened, about 5 minutes
 
  3. Add BTB and tomato paste and mix thoroughly. Cook off.
 
@@ -34,7 +34,7 @@
  5. Pat skirt dry. Cut up and add. Mix to combine. Add water without covering.
     Sift on flour, stir to combine, avoiding lumps.
 
- 7. Bring to a simmer, then bake at 325° for 90 minutes.
+ 7. Bring to a simmer, then bake uncovered at 325° for 90 minutes.
 
  8. While cooling, boil water and cook egg noodles until slightly underdone.
     Add sour cream and stir in, then add egg noodles and let them finish
