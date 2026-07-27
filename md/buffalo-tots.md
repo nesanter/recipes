@@ -19,8 +19,8 @@ Priced at $19.67, consuming only 2lb of the 5lb bag of tots ($3.60 of $8.99)
 
  1. Preheat oven to 450°F. Put tots on a sheet tray. Bake for 35 minutes.
 
- 2. Add buffalo sauce, garlic powder, and mexican cheese. Bake for 10 to 15
+ 2. Add buffalo sauce, garlic powder, and mexican cheese. Bake for 3 to 5
     minutes.
 
- 3. Cut up and crumble feta cheese. Bake an additional 3 to 5 minutes until
+ 3. Cut up and crumble feta cheese. Bake an additional 2 to 3 minutes until
     cheese is melted.
