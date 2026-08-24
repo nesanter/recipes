@@ -1,5 +1,9 @@
 # French Onion Soup
 
+This recipe is a combination/modification drawing on Julia Child's recipe for
+*soupe à l'oignon* as well as Samin Nosrat's beef stock from *Salt Fat Acid
+Heat*.
+
 ## Ingredients
 
 ### Stock
