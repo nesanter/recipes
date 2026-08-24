@@ -4,15 +4,20 @@
 
 ### Stock
 
- - oxtail and marrow bones
+ - 1lb meaty bones (oxtail, knuckle, etc.)
+ - ~6lb marrow bones
  - 3 carrots broken down
  - 3 stalks celery broken down
  - 1 onion quartered
- - tomato paste
- - bay leaves
- - peppercorn
+ - 3 tbsp tomato paste
+ - 2 bay leaves
+ - 1 tsp whole black peppercorn
+ - 5 sprigs parsley
+ - 4 sprigs thyme
+ - 1 tsp vinegar (unless vermouth is particularly acidic)
+ - ~2 tbsp oil
  - water
- - vermouth to deglaze
+ - vermouth e.g. Noilly Prat (to deglaze)
 
 ### Caramelized Onions
 
@@ -23,7 +28,7 @@
 
 ### Soup
 
- above stock and onions, as well as:
+above stock (about eight cups of it) and onions, as well as:
 
  - 2 to 3 tbsp flour
  - more bay laurel
@@ -33,13 +38,15 @@
 
 ## Instructions
 
- 1. Rub the bones with tomato paste. Roast the stock vegetables and bones at
-    450°F for forty minutes or so. Set aside fat and deglaze.
+ 1. Roast the stock vegetables and bones at 450°F for forty minutes or so. Set
+    aside fat and deglaze.
 
- 2. Simmer roasted things, deglazed fond, and bay leaves, and peppercorns with
-    a large quantity of water for 4 to 6 hours.
+ 2. Pre-brown spices and tomato paste in oil in the stock pot.
 
- 3. Strain and cool.
+ 3. Simmer browned spices, roasted things, and deglazed fond with vinegar and a
+    large quantity of water for 4 to 6 hours.
+
+ 4. Strain and cool.
 
  4. In a dutch oven, caramelize thinly sliced onions in melted butter and oil
     with a pinch of salt.
