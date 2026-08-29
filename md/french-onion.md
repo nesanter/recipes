@@ -25,7 +25,7 @@ Heat*.
 
 ### Caramelized Onions
 
- - 1½ lb yellow onions
+ - 1½lb yellow onions
  - 3 tbsp butter (or more)
  - 1 tbsp oil
  - pinch of salt
@@ -35,10 +35,10 @@ Heat*.
 above stock (about eight cups of it) and onions, as well as:
 
  - 2 to 3 tbsp flour
- - more bay laurel
+ - 2 or 3 bay leaves
  - ground pepper
- - 1 cup vermouth
- - 1 splash cognac
+ - 1 cup white vermouth e.g. Noilly Prat
+ - 1 splash cognac e.g. Meukow VS
 
 ## Instructions
 
@@ -52,15 +52,16 @@ above stock (about eight cups of it) and onions, as well as:
 
  4. Strain and cool.
 
- 4. In a dutch oven, caramelize thinly sliced onions in melted butter and oil
+ 5. In a dutch oven, caramelize thinly sliced onions in melted butter and oil
     with a pinch of salt.
 
- 5. Bring a quantity of stock to a boil. Make a roux with a few tablespoons
+ 6. Bring a quantity of stock to a boil. Make a roux with a few tablespoons
     of flour in the caramelizing pot. Add a bit of boiling stock to form a
     smooth paste, and then add the remainder.
 
- 6. Add some vermouth and more bay leaves. Simmer for thirty minutes. Add a
+ 7. Add some vermouth and more bay leaves. Simmer for thirty minutes. Add a
     bit of cognac. Simmer for ten to fifteen minutes.
 
- 7. Serve with bread and a pile of grated gruyere.
+ 8. Serve with bread and a pile of grated gruyere; alternatively, serve it
+    gratinéed.
 
